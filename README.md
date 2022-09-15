@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **AUTOSAR Run Time Environment(RTE)**
 
-- 📫 How to reach me **https://www.instagram.com/tsen__en1998/**
+- 📫 How to reach me **https://www.instagram.com/tsepp__/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
